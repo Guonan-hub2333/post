@@ -1,5 +1,5 @@
 {
-  "sites":{
+  "sites":[
     {code:"404",message:"啥也没有"},
-  }
+  ]
 }
