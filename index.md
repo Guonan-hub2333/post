@@ -2,6 +2,12 @@
 
 > [点击这里以访问首页](https://guonan-hub2333.github.io/)
 
+
+
+## [男性没有享受女性拥有的任何一项特权，包括且不限于：（图文并茂版）](系列6.pdf)
+
+> ![image](https://github.com/user-attachments/assets/347fd82a-5394-49f6-916a-32a354576c15)
+
 ## [女权造谣系列5](系列5.pptx)
 
 > 辟谣方面：
